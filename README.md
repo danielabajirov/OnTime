@@ -4,4 +4,4 @@
 
 ![Alternate Text](https://i.imgur.com/9ZVNYnP.png)
 
-![Text](http://prntscr.com/jd890j)
+![Text](https://imgur.com/im22RIc)
